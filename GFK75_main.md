@@ -43,8 +43,8 @@ Gleichzeitig geraten Regelungen und Finanzierung des globalen Flüchtlingsschutz
 | 09.11.26 | Politische Verfolgung                       |                   |         |
 | 16.11.26 | Flüchtlingsbegriffe / Philo                 |                   |         |
 | 23.11.26 | Postkol. Kritik                             |                   |         |
-| 30.11.26 | Flüchtlingsschutz und Asyl                  |                   |         |
-| 07.12.26 | Konferenzvorbereitung                       |                   |         |
+| 30.11.26 | Flüchtlingsschutz und Asyl                 |                   |         |
+| 07.12.26 | Konferenzvorbereitung, Europa neu schaffen                       |                   |         |
 | 10.12.26 | Konferenz                                   |                   |         |
 | 11.12.26 | Konferenz                                   |                   |         |
 | 11.01.27 | Nachlese Konferenz und Vorbereitung Dossier |                   |         |
