@@ -57,7 +57,7 @@ Gleichzeitig geraten Regelungen und Finanzierung des globalen Flüchtlingsschutz
 
 * Beachten Sie die Handreichung zum wissenschaftlichen Arbeiten im Fach Philosophie.
 * Jedes Referat, jede Hausarbeit und jeder Essay sind im Vorfeld in der Sprechstunde abzustimmen. Ein persönliches Gespräch mit dem Dozenten (Sprechstunde) zur Vorbereitung ist Voraussetzung für die Annahme der Arbeit.
-* Die Abgabe erfolgt als PDF per Email und als Ausdruck, mit Deckblatt und unterschriebener Eigenständigkeitserklärung an der Hauptpforte oder im Briefkasten für Prüfungsleistungen in der LS4. Eine Abgabe nur per Email ist nicht ausreichend!
+* Die Abgabe erfolgt als PDF per Email und als Ausdruck, mit Deckblatt und unterschriebener Eigenständigkeitserklärung an der Hauptpforte oder im Briefkasten für Prüfungsleistungen in der LS4. Eine Abgabe nur per Email ist nicht ausreichend!  **Der Abgabetermin für die schriftlichen Prüfungsleistungen ist der 31.03.2027**.
 * **Referate:** Gehen Sie davon aus, dass alle Teilnehmenden die Texte gelesen haben. Referate sind durch Forschungsliteratur gestützte Fachvorträge, vermeidet also eine bloße Inhaltsangabe. Versucht, den Argumentationszusammenhang herauszustellen und in den Kontext des Seminars einzubetten. Klärt Begriffe und stellt gern auch einzelne Textpassagen ausführlicher dar, die Sie für besonders bezeichnend erachten. Im Umfang sollten 30 Minuten nicht überschritten werden. Die Erstellung eines Handouts und/oder einer Präsentation ist obligatorisch. Die Präsentation/ das Handout wird im Anschluss dem Seminar zur verfügeung gestellt (PDF-Datei). Zum Referat gehört die anschließende Übernahme der Sitzungmoderation. Kommt spätestens 2 Wochen vor dem Referatstermin in die Sprechstunde.
 
 ### Bachelor Philosophie
